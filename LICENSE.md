@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Photoshop para PC ejecutor es el mejor Adobe Photoshop para PC ejecutor con documentos multipágina y herramientas de alineación. Seguro, confiable y optimizado para
 
 
 
